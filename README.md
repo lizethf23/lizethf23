@@ -1,6 +1,6 @@
 ## Boas vindas ao meu perfil 💙
 
-Meu nome e Lizeth Flores 
+-Meu nome e Lizeth Flores 
 
 Estou estudando na Alura 
 
