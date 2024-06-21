@@ -12,4 +12,4 @@ Você pode entrar em contato comigo 📫
 
 @lizethflores
 
-![]((https://github.com/lizethf23/lizethf23/assets/171709733/d4358a68-a20a-41f1-9717-a0a251050f1e))
+![](https://github.com/lizethf23/lizethf23/assets/171709733/d4358a68-a20a-41f1-9717-a0a251050f1e)
